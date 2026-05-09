@@ -1,4 +1,4 @@
-
+GarageBand for macOS new Filter: AI-upscaling & slow-motion offers the most advanced GarageBand for macOS filter, with AI-upscaling and slow-motion. Ideal for professional video
 
 
 
